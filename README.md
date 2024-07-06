@@ -1,5 +1,5 @@
 
-# Samara Oliveira
+# Samara De Oliveira Lobato
 
 Olá, sejam bem vindos ao meu perfil aqui no GitHub! 😃
 
